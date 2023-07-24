@@ -3,3 +3,4 @@
 ![TPO18 L1 Sunspots](https://github.com/Theo1227/Theo-Li/assets/130739795/47bef9c2-f957-48a3-b655-1440442ae6b5)
 ![TPO64 L1 Continental Polar Air Mass](https://github.com/Theo1227/Theo-Li/assets/130739795/d1a2791c-29aa-41b5-9e11-67b1c164433f)
 ![TPO64 L3 Gila Lizard](https://github.com/Theo1227/Theo-Li/assets/130739795/b81345e3-bebe-48a6-b6c4-73044ba24c6a)
+![capture_20230724222208582(1)](https://github.com/Theo1227/Theo-Li/assets/130739795/ff60ecfc-bf26-410f-8a16-92b0a35911bb)
